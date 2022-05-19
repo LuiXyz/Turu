@@ -6,6 +6,3 @@
   <a href="https://wa.me/6282146092695">SC FREE API KOK GAN >//< </a>
 </h4>
 </p>
-
-[AhmdLui](https://github.com/Luigmntng) 
- Creator 
